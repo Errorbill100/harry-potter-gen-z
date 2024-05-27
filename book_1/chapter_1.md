@@ -5,7 +5,7 @@ Mr. and Mrs. Dursley, of number four, Privet Drive, liked flexing that they were
 
 Mr. Dursley was adulting at a firm called Grunnings, which made drills.
 
-He was a dummy thiccc (w/ three Cs) man with hardly any neck, although he had an absolute unit of a mustache. Mrs. Dursley was a total Karen with zero chill and had hella neck, which came in very useful when she was stalking her neighbours and not minding her own.
+He was a dummy thiccc (w/ three Cs) man with hardly any neck no cap, although he had an absolute unit of a mustache. Mrs. Dursley was a total Karen with zero chill and had hella neck, which came in very useful when she was stalking her neighbours and not minding her own.
 
 The Dursleys had a future incel of a son named Dudley who they thought was the main character. The Dursleys were mostly thriving, but they also had lowkey tea which didn't pass the vibe check and their greatest fear was to get called out and cancelled. They were girlbossing too close to the sun and didn't think their clout could bounce back if their fam, the Potters, were revealed. Milf Lily Potter was Mrs. Dursley's sis, but Mrs. D had gone ghost; irl (no cap) Mrs. D fronted she didn't have a sis, because Lil and her deadbeat mans were straight up cringe. If the neighbors ever peeped the Potters, it'd be a big yikes. Lowkey the Dursleys knew the Potters had their own crotch goblin, too, but they'd never peeped. This bb was fr a solid reason 2 keep the in-laws yote; they didn't want Dudley mixing with a gross being like that.
 
@@ -25,9 +25,9 @@ Mr Dursley felt like he'd been ratioed irl. He looked back at the whisperers and
 
 During that day, emo thoughts kept dabbing across Mr Dursley's mind. He later left the building and nearly sister slammed into someone just outside his door.
 
-"Naurrr," he grunted, as the man nearly fell. However, he didn't seem triggered at all- instead, the funky little dude pressed the slay button. "So true, bestie! Even Muggles like u should slayy today, when The Sussiest Of Bakas has been canceled at last!"
+"Naurrr," he grunted, as the man nearly fell. However, he didn't seem triggered at all- instead, the funky little dude pressed the slay button. "So true, bestie! Even Muggles like u should so slayy the day, when The Sussiest Of Bakas has been canceled at last ur like so woke!"
 
-And then the old man hugged Mr Dursley (real) and headed off.
+And then the old man hugged Mr Dursley and headed off fr.
 
 Mr Dursley couldn't even find it in him to yeah fortnite 10k we're about to go down babey. He hurried to his car and The Fast and the Furious: Tokyo Drift—ed straight home.
 
